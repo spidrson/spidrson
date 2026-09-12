@@ -1,4 +1,4 @@
-  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎  ‎  ‎    ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎   ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎  ‎  ‎ ‎ ⠀![](https://komarev.com/ghpvc/?username=your-github&color=B08D38&label=⠀tιᥒყ⠀sριdᥱყs⠀&style=Plastic)
+  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎  ‎  ‎    ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎   ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎  ‎  ‎ ‎ ⠀![](https://komarev.com/ghpvc/?username=your-github&color=4f8955&label=⠀tιᥒყ⠀sριdᥱყs⠀&style=Plastic)
 <p align="center">
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://zhenyu.atabook.org">Sign me.</a>                                                         
@@ -14,7 +14,9 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://sexprince.straw.page">Straw ext</a>
 
-  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎    ‎  ‎  ‎[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=9000&size=15&pause=900&color=4F3D0F&width=435&lines=Someone+has+to+stand+up+for+you+.;I'll+be+that+person+.+:+T)](https://git.io/typing-svg)
+  ‎
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=9000&size=15&pause=900&color=96563e&width=435&lines=Garbage+,+trash+,+Scraps+of+Rubbish+.;I'm+used+to++leftovers+.;I+don't+sit+.+I'm+telling+you+,+I+don't+fetch+.;I'm+not+doing+this+because+you+told+me+to,;I'm+doing+this+because+I+feel+sorry+for+you+.)](https://git.io/typing-svg)
 <p align="center">
 <p align="center">
                                                                                         
