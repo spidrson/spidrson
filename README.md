@@ -16,7 +16,7 @@
 
   ‎
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=9000&size=15&pause=900&color=96563e&width=435&lines=Garbage+,+trash+,+Scraps+of+Rubbish+.;I'm+used+to++leftovers+.;I+don't+sit+.+I'm+telling+you+,+I+don't+fetch+.;I'm+not+doing+this+because+you+told+me+to,;I'm+doing+this+because+I+feel+sorry+for+you+.)](https://git.io/typing-svg)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=9000&size=15&pause=900&color=96563e&width=435&lines=Ɠąɾҍąցҽ+,+Ͳɾąʂհ+,+Sçɾąքʂ+օƒ+Rմҍҍìʂհ+.;I'm+used+to++Ӏҽƒէօѵҽɾʂ+.;I+don't+ʂìէ+.+I'm+telling+you+,+I+don't+ƒҽէçհ+.;I'm+not+doing+this+because+you+էօӀժ+me+to,;I'm+doing+this+because+I+feel+ʂօɾɾվ+for+you+.)](https://git.io/typing-svg)
 <p align="center">
 <p align="center">
                                                                                         
